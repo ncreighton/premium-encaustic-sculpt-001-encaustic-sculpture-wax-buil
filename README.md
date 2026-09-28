@@ -1,0 +1,2 @@
+# premium-encaustic-sculpt-001-encaustic-sculpture-wax-buil
+Tired of losing track of your wax layers, mixing ratios, and sculpting progress? The Encaustic Sculpture &amp; Wax Build Up Craft Lab gives you a complete system to document every stage of your encaustic work—from initial concept to final masterpiece.  This Notion template transforms chaotic studio notes into a professional craft management system desi
